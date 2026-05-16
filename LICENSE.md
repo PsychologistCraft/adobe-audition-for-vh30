@@ -1,4 +1,4 @@
-# 
+# custom Plugin for Adobe Audition for PC | Adobe Audition for Windows - EQ and effects-library is the best Adobe Audition for PC | Adobe Audition for Windows plugin, featuring EQ
 
 
 
